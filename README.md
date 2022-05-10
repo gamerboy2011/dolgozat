@@ -1,0 +1,1 @@
+#gyakorlas a dolgozatra
